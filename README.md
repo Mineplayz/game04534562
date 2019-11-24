@@ -1,1 +1,1 @@
-The Game - Mineplayz
+All rights go to Mineplayz
